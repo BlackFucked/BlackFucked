@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BlackFucked 
+- 🌱 I’m currently learning java, python and javascript
+- 💞️ I’m looking to collaborate on my squad join now ! https://discord.gg/PzSu3bUYej
+- 📫 How to reach me : +39324........ eheheh
+- 📞 My discord is blackreddo contact me!
